@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/akshaya-mohanakrishnan-4030a2192**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFkebiUTFA/ZUYh4OCpvsK8nlBaiZaXvQ/view?utm_content=DAFkebiUTFA&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink](https://www.canva.com/design/DAFkebiUTFA/ZUYh4OCpvsK8nlBaiZaXvQ/view?utm_content=DAFkebiUTFA&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1HBSwzMi3E55973O6kAbN2vPd4QKVaUtT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
